@@ -1,23 +1,23 @@
 
 # :sparkles::sparkles:星空传媒发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址1】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://mogusp.github.io/mogushipina/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址3】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址4】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址4】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址5】 ：https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址5】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址6】 : https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址6】 : https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址7】 ：https://mogusp.github.io/mogushipina/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址7】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址8】 ：https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址8】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址9】 ： https://mogusp.github.io/mogushipina/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址9】 ： https://xingkongchuanmeiapp.github.io/xingkongchuanmei/ （点击打开，看完记得收藏)
   ------
 
   
