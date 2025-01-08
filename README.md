@@ -1,24 +1,24 @@
 
 # :sparkles::sparkles:星空传媒发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址1】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址3】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏) 
  ------
- :heart: :point_right: 【最新地址4】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
+  :heart: :point_right: 【最新地址4】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址5】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址5】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址6】 : https://xingkongchuanmeiapp.github.io/xingkongchuanmei/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址6】 ：https://dizhifabuy.pages.dev/    （点击打开，看完记得收藏) 
  ------
- :heart: :point_right: 【最新地址7】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址7】 ：https://dizhifabuy.pages.dev/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址8】 ：https://xingkongchuanmeiapp.github.io/xingkongchuanmei/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址8】 ：https://dizhifabuy.pages.dev/     （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址9】 ： https://xingkongchuanmeiapp.github.io/xingkongchuanmei/ （点击打开，看完记得收藏)
-  ------
+ :heart: :point_right: 【最新地址9】 ：https://dizhifabuy.pages.dev/   （点击打开，看完记得收藏) 
+ ------
 
   
 #### （复制地址到浏览器中打开）：
